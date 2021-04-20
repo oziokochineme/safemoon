@@ -1,0 +1,2 @@
+# safemoon
+To earn more
